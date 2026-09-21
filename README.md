@@ -10,7 +10,7 @@
 <p align="center">𓋰
   
 <p align="center">   𓊈 !! IMPORTANT !! 𓊉 
-<p align="center"> :: i often have trouble with impulsive talking, and i often may accidentally act rude without noticing. i also sometimes text or read texts twice because it wont get in my head and i mostly forget, if i do anything like this that disturbs you or makes you uncomfrtable, immediently tell me. ( in other words, i may have undiagnosed adhd (I RESEARCHED ON ADHD FOR 9 MONTHS NOT SELFDIAGNOSING) and i have trouble with socializing, thanks for reading <3 )
+<p align="center"> :: i often have trouble with impulsive talking, and i often may accidentally act rude without noticing. i also sometimes text or read texts twice because it wont get in my head and i mostly forget, if i do anything like this that disturbs you or makes you uncomfrtable, immediently tell me. and i have trouble with socializing, thanks for reading <3 )
 
   
 ![image alt](https://github.com/healrr/meds/blob/5d97cacbcf174a05eb8557147be5c1ce936f885b/Untitled1_20260915031718.png)
