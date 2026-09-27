@@ -2,7 +2,7 @@
 ⠀⠀ ⠀
 ![image_alt](https://files.catbox.moe/wu9qog.png)
 
-<p align="center"> ⟡   hello im elliot (medelliot pref) , i use all/any prns. im alright with c+h and int
+<p align="center"> ⟡   hello im medelliot , i use all/any prns. im alright with c+h and int
   <p align="center"> ﹒  my main interests are phighting, jrwi: UPP, typology, summer camp island, mlp, project hailmary
 <p align="center"> ﹒  i enjoy building and mafias 
 <p align="center">  ﹒ INTP Ti-Ne-Si-Fe so/sp sp629 6w5 x/L/Ua[I] Phleg-mel AoxId|R|g
