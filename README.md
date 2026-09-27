@@ -2,7 +2,7 @@
 ⠀⠀ ⠀
 ![image_alt](https://github.com/healrr/meds/blob/c833cb1664a2b5674392bdff97dc017f6045e332/Screenshot%202026-09-17%20214953.png)
 
-<p align="center"> ⟡   hello im norah/healer (norah pref) , i use him/any prns. im alright with c+h and int
+<p align="center"> ⟡   hello im elliot (medelliot pref) , i use all/any prns. im alright with c+h and int
   <p align="center"> ﹒  my main interests are phighting, jrwi: UPP, and typology
 <p align="center"> ﹒  i enjoy building and i would like to have building buddies, i also like mafias and debates
 <p align="center">  ﹒ dni anyone below the age of -13
