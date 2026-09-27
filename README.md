@@ -1,4 +1,4 @@
-# 𝒞hurch of tru𝓮 ꫀყe
+# 𝒢reᥱn hou𝒮e
 ⠀⠀ ⠀
 ![image_alt](https://files.catbox.moe/wu9qog.png)
 
