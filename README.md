@@ -3,9 +3,9 @@
 ![image_alt](https://github.com/healrr/meds/blob/c833cb1664a2b5674392bdff97dc017f6045e332/Screenshot%202026-09-17%20214953.png)
 
 <p align="center"> ⟡   hello im elliot (medelliot pref) , i use all/any prns. im alright with c+h and int
-  <p align="center"> ﹒  my main interests are phighting, jrwi: UPP, and typology
-<p align="center"> ﹒  i enjoy building and i would like to have building buddies, i also like mafias and debates
-<p align="center">  ﹒ dni anyone below the age of -13
+  <p align="center"> ﹒  my main interests are phighting, jrwi: UPP, typology, summer camp island, mlp, project hailmary
+<p align="center"> ﹒  i enjoy building and mafias 
+<p align="center">  ﹒ INTP Ti-Ne-Si-Fe so/sp sp629 6w5 x/L/Ua[I] Phleg-mel AoxId|R|g
 
 <p align="center">𓋰
   
