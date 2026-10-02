@@ -5,8 +5,9 @@
 <p align="center"> ⟡   hello im medelliot , i use all/any prns. im alright with c+h and int
   <p align="center"> ﹒  my main interests are phighting, jrwi: UPP, typology, summer camp island, mlp, project hailmary
 <p align="center"> ﹒  i enjoy building and mafias 
+<p align="center">  ﹒ feel free to talk to me about phighting, asking to do cmf, or just play phighting.
 <p align="center">  ﹒ INTP Ti-Ne-Si-Fe so/sp sp629 6w5 x/L/Ua[I] Phleg-mel AoxId|R|g
-
+  
 <p align="center">𓋰
   
 <p align="center">   𓊈 !! IMPORTANT !! 𓊉 
