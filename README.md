@@ -30,7 +30,7 @@
   summer camp island, Unwitness protection program, project hailmary, mlp, and a few more. i enjoy studying psychology, 
   collecting rocks and educating myself with physical health
   & mental. i am a minor. i can be super awkward or have difficulty processing some things so pls bare with me
-  . im also open to play phighting or cmf with anybody
+  . im also open to play phighting or cmf with anybody (or bmf please)
   
 <img align="center" src="https://files.catbox.moe/kgaa1a.png" width="300">⠀ 
   ⠀⠀    ⠀⠀    ⠀⠀  
