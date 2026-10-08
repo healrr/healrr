@@ -25,7 +25,7 @@
 
 
 <div align="center">
-<details><summary>info</summary> i am a SUPER big fan of phighting, medkit,
+<details><summary>info</summary> i am a SUPER big fan of phighting, medkit, shuricoil,
   and lost temple lore (medkit main and lvl 200+). i am also interested in
   summer camp island, Unwitness protection program, project hailmary, mlp, and a few more. i enjoy studying psychology, 
   collecting rocks and educating myself with physical health
