@@ -14,6 +14,7 @@
  </p>ㅤ ㅤ ㅤ 
  ㅤ ㅤ ㅤ ㅤ ㅤ hugeㅤ  phightingㅤ  fan 
 
+  
  <p align="center">
 　　　　<details>
 <summary> 　　　　　　　　　　　　about me </summary>
