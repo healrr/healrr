@@ -2,8 +2,8 @@
   </p>ㅤㅤㅤㅤㅤㅤㅤ
 </p> ㅤㅤㅤㅤㅤㅤㅤ 
 </p>ㅤㅤㅤㅤㅤ
-<p align="center">
-  <img width="40" src="https://64.media.tumblr.com/0c4267d1cb138d2aff705ca922cba118/bd05a3c405e2cc69-7c/s75x75_c1/3db6917d8c27b2eabf8db54ed562e44edb042066.gifv">ㅤ<img align="left" width="300" src="https://file.garden/ajK33fTlUG_SuFkN/98a5d03e5ebe4199db7f442233f73ee8.jpg"> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ   <img width="40" src="https://64.media.tumblr.com/0c4267d1cb138d2aff705ca922cba118/bd05a3c405e2cc69-7c/s75x75_c1/3db6917d8c27b2eabf8db54ed562e44edb042066.gifv">ㅤ<img align="left" width="300" src="https://file.garden/ajK33fTlUG_SuFkN/98a5d03e5ebe4199db7f442233f73ee8.jpg"> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
  ㅤㅤㅤㅤㅤㅤㅤㅤ**medelliot** ㅤㅤㅤor ㅤㅤㅤ**elliot**
  </p>
