@@ -28,4 +28,4 @@
 
 
 - close / family: nopolah , richii , amarion
-- friends: [jay](https://github.com/deviousduoz), [overseer](https://github.com/reenzzsh), [arle](https://github.com/casino-flush), [elli](https://github.com/prizeflush), [null](https://fluffle.cc/noli) , [scarlet](https://github.com/Gr1mzR0se), [kiki](https://github.com/banhwmmer), [clockwork](https://rentry.co/clockworkdial), f4wn, azure
+- friends: binx, [jay](https://github.com/deviousduoz), [overseer](https://github.com/reenzzsh), [arle](https://github.com/casino-flush), [elli](https://github.com/prizeflush), [null](https://fluffle.cc/noli) , [scarlet](https://github.com/Gr1mzR0se), [kiki](https://github.com/banhwmmer), [clockwork](https://rentry.co/clockworkdial), f4wn, azure
