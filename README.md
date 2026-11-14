@@ -8,6 +8,6 @@
   <br>$\color{#e6db97}{\textsf{  ⠀   ⠀  ⠀ ⠀ ⠀𓂃 ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⿻⠀  ⠀  ⠀  ⠀ 𓏼݁  ⠀  ⠀  ⠀  ⠀ᛪ༙}}$
  <br>$\color{#97e6ce}{\textsf{ 𓏲 ๋࣭  ࣪ ˖⠀  ⠀ ⠀ my heart goes out 2 u!! cuz i luv u!!۪⠀ ⠀𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱}}$ ⠀ ⠀ ⠀ ⠀ 
     
-  <br>$\color{#e6db97}{\textsf{⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀  ♡ ⠀ ⠀ ⠀ ⠀medᥱlliot}}$ <br>$\color{#58c4b8}
+  <br>$\color{#e6db97}{\textsf{⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀  ♡ ⠀ ⠀ ⠀ ⠀medᥱlliot}}$ 
 
   ALL WIP!!!!!!!!!! ALL WIP!!!!!!!!!!!! WIP!!!!!!!!!!!!!!!!!
