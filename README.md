@@ -4,8 +4,10 @@
 
 <table align="center" >
   <tr>
-  <td  align="center" width="400" height="400">
-  <br>$\color{#fcfa6f}{\textsf{⠀ ⠀ medelliot⠀ ⠀}}$
-    <br>$\color{#fcfa6f}{\textsf{or⠀ ⠀ elliot⠀ ⠀}}$
-    <br>$\color{#fcfa6f}{\textsf{⠀ ⠀ ⠀ ⠀ ⠀ ⠀ apagendr unlabld any / all / every⠀ ⠀}}$
-    THIS IS A WIP!!!!WIP!!!! WIP PAGE!!!
+  <td  align="" width="400" height="400">
+  <br>$\color{#e6db97}{\textsf{  ⠀   ⠀  ⠀ ⠀ ⠀𓂃 ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⿻⠀  ⠀  ⠀  ⠀ 𓏼݁  ⠀  ⠀  ⠀  ⠀ᛪ༙}}$
+ <br>$\color{#97e6ce}{\textsf{ 𓏲 ๋࣭  ࣪ ˖⠀  ⠀ ⠀ my heart goes out 2 u!! cuz i luv u!!۪⠀ ⠀𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱}}$ ⠀ ⠀ ⠀ ⠀ 
+    
+  <br>$\color{#e6db97}{\textsf{⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀  ♡ ⠀ ⠀ ⠀ ⠀medᥱlliot}}$ <br>$\color{#58c4b8}
+
+  ALL WIP!!!!!!!!!! ALL WIP!!!!!!!!!!!! WIP!!!!!!!!!!!!!!!!!
