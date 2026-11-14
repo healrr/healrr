@@ -4,10 +4,10 @@
 
 <table align="center" >
   <tr>
-  <td  align="" width="400" height="400">
-  <br>$\color{#e6db97}{\textsf{  ⠀   ⠀  ⠀ ⠀ ⠀𓂃 ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⿻⠀  ⠀  ⠀  ⠀ 𓏼݁  ⠀  ⠀  ⠀  ⠀ᛪ༙}}$
- <br>$\color{#97e6ce}{\textsf{ 𓏲 ๋࣭  ࣪ ˖⠀  ⠀ ⠀ my heart goes out 2 u!! cuz i luv u!!۪⠀ ⠀𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱}}$ ⠀ ⠀ ⠀ ⠀ 
+  <td  align="center" width="400" height="400">
+  <br>$\color{#e6db97}{\textsf{}}$
+ <br>$\color{#97e6ce}{\textsf{my heart goes out 2 u!! cuz i luv u!}}$ ⠀ ⠀ ⠀ ⠀ 
     
-  <br>$\color{#e6db97}{\textsf{⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀  ♡ ⠀ ⠀ ⠀ ⠀medᥱlliot}}$ 
+  <br>$\color{#e6db97}{\textsf{♡ ⠀ ⠀ ⠀ ⠀medᥱlliot}}$ 
 
   ALL WIP!!!!!!!!!! ALL WIP!!!!!!!!!!!! WIP!!!!!!!!!!!!!!!!!
