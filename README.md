@@ -18,4 +18,6 @@
 <details>
 <summary>$\color{#e6db97}{\textsf{⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀extnd }}$</summary>
 
+<p align="center">
+  
 hey my name is zam and this is who i am
