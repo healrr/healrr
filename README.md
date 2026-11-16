@@ -18,12 +18,18 @@
 <details>
 <summary>$\color{#e6db97}{\textsf{⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀extnd }}$</summary>
 
+
 <p align="center">
   
 
 <table align="center" >
   <tr>
   <td  align="" width="400" height="400">
+
+<p align="center">
+<details>
+<summary>$\color{#e6db97}{\textsf{⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀diary . . }}$</summary>
+</details>
 
  hi im medelliot (or elliot)! i really like playing phighting, medkit lore + character and talking about phighting lore, mostly church of true eye. i learn and study psychology, learning about cluster b and DSM-5 (mostly focused on these 2) and drawing, writing, and making animatics. i also watch summer camp island, jrwi unwitness protection program, and project hailmary. i listen to boggio, oasis (favorite) and panchiko. 
 
