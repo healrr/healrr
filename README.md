@@ -16,7 +16,7 @@
 
 <p align="center">
 <details>
-<summary>$\color{#e6db97}{\textsf{⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀extnd }}$</summary>
+<summary>$\color{#e6db97}{\textsf{⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀click me }}$</summary>
 
 
 <p align="center">
@@ -28,8 +28,20 @@
 
 <p align="center">
 <details>
-<summary>$\color{#e6db97}{\textsf{⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀diary . . }}$</summary>
+<summary>$\color{#e6db97}{\textsf{⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀socials . . }}$</summary>
+
+$\color{#97e6ce}{\textsf{ 11/16/26 }}$
+
+ <img align="" width="300" src="https://files.catbox.moe/dk1tp5.png"> 
+
+
+ follow me on my [twitter](https://x.com/med3lliot) & [tiktok](https://www.tiktok.com/@medelliot) guys :)))
 </details>
+
+
+
+<details>
+<summary>$\color{#e6db97}{\textsf{⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀extnd . . }}$</summary>
 
  hi im medelliot (or elliot)! i really like playing phighting, medkit lore + character and talking about phighting lore, mostly church of true eye. i learn and study psychology, learning about cluster b and DSM-5 (mostly focused on these 2) and drawing, writing, and making animatics. i also watch summer camp island, jrwi unwitness protection program, and project hailmary. i listen to boggio, oasis (favorite) and panchiko. 
 
