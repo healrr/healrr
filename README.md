@@ -5,7 +5,7 @@ medelliot/elliot . i use any/all/every/it . im awkward and i am not good with so
 <details>
 <summary> my friends </summary>
 
-> plan z gang ♡ . rob10xians
+> n.r.a ♡ . rob10xians
 . binx
 . paws across the world
   
