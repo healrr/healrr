@@ -7,7 +7,7 @@
 
  $\color{#6e4522}{ 𖹭⠀⠀⠀ ً⠀⠀⠀⠀ ᶜʰᵃᵐᵖᵃⁿᵍᵉ ˢᵘᵖᵉʳⁿᵒᵛᵃ⠀ ⠀⠀⠀}$
 
- <td colspan="2"> hi this is a wip illfinish this tomorrow </td>
+ <td colspan="2">ㅤㅤㅤㅤㅤ $\color{#944a15}{medelliot}$ㅤㅤㅤㅤㅤㅤㅤ </td>
     </tr>
   <tr>
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
