@@ -1,12 +1,11 @@
-yes remaking intro again because im unhappy with it
 
-medelliot/elliot . i use any/all/every/it . im awkward and i am not good with social cues . c+hcomf and int is enc :)
+<p align="left">   
+<table>
+  <tr>
+    <td>
+    <img src="https://files.catbox.moe/2fjf5m.jpg" width="400">
 
-<details>
-<summary> my friends </summary>
-
-> n.r.a ♡ . rob10xians
-. binx
-. paws across the world
-  
-</details>
+ $\color{#6e4522}{ 𖹭⠀⠀⠀ ً⠀⠀⠀⠀⠀" 𝒲herᥱ wᥱrᥱ ყou whi𝓁e we r getting high ? "⠀⠀⠀}$
+    </tr>
+  <tr>
+    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
