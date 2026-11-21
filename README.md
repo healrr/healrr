@@ -48,7 +48,7 @@
  
  if u want to become friends feel free to ask, i will be happy to teach or talk to anyone about shared topics!!
 
- iwec 25+ and -13
+ iwec 25+ and dni -13
 
  i zone out and daydream EXTREMELY frequently to the point it consumes my life, i may appear foggy minded or ignorant sometimes due to this, if this does happen please tell me immediently instead of keeping quiet :)  +  i have issues with impulsive talking, socially awkward + trouble noticing social cues.
 
