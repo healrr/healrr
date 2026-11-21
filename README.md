@@ -18,7 +18,31 @@
 
   <details>
 
- <summary>  ㅤㅤ  ㅤㅤㅤㅤ$\color{#cfbcb0}{more . .}$ ㅤㅤ</summary>
+ <summary> ㅤ ㅤ ㅤㅤ ㅤㅤ $\color{#cfbcb0}{mo}$ $\color{#944a15}{re . .}$ ㅤㅤ</summary>
+ ㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ
+
+<details>
+
+ <summary> ㅤ ㅤ ㅤㅤ ㅤㅤ  $\color{#944a15}{friends}$ ㅤㅤ</summary>
+
+ plan z gang: nopolah , amarion , richii :) ♡
+ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤㅤ ㅤㅤ 
+ 
+ companionship duo: [binx](https://github.com/binx69)
+
+ rob10xians: [reenzzsh](https://github.com/reenzzsh) [kiki.rhett](https://github.com/pwppy) [scarlet](https://github.com/scarletzgrimz) [clockwork.kaito](https://github.com/clockworkclover) [jay](https://github.com/deviousduoz) [elli](https://github.com/prizeflush) <- cutest couple -> [arle.chance](https://github.com/casino-flush) [null](https://github.com/202xyuri) [TheTrueEyecollective](https://github.com/TheTrueEyecollective)
+
+ wifies, spokeishere.fei, f4wn, azure
+    
+  </details>
+
+  <details>
+
+ <summary> ㅤ ㅤ ㅤㅤ ㅤㅤ  $\color{#cfbcb0}{extended}$ ㅤㅤ</summary>
+
+will do this later
+    
+  </details>
     
   </details>
 
