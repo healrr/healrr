@@ -14,7 +14,7 @@
 
   ㅤㅤ  $\color{#944a15}{ any/all/every ㅤㅤso5w6ㅤintp}$ <img src="https://64.media.tumblr.com/145becb590f534235ccde955ff91879a/c138af8761d22bba-7e/s75x75_c1/711d7e85106c8aa2757d64a4d6d58d24f5ce3d73.gifv" width="10">
   
-  ㅤㅤ  $\color{#cfbcb0}{ ㅤ ㅤㅤsuspected ㅤㅤadhd}$
+  ㅤㅤ  $\color{#cfbcb0}{ ㅤ suspectedㅤ inattentiveㅤadhd}$
   
 
   <details>
