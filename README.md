@@ -7,7 +7,7 @@
 
  $\color{#6e4522}{ 𖹭⠀⠀⠀ ً⠀⠀⠀⠀ ᶜʰᵃᵐᵖᵃⁿᵍᵉ ˢᵘᵖᵉʳⁿᵒᵛᵃ⠀ ⠀⠀⠀}$
 
- <td colspan="2"> <img src="https://file.garden/ajK33fTlUG_SuFkN/Screenshot%202026-11-22%20080514.png" width="350">
+ <td colspan="2">
    
    $\color{#cfbcb0}{ㅤ۫ ׅㅤㅤㅤ }$ $\color{#944a15}{𝗆𝖾𝒹𝖾𝗅𝗅𝗂𝗈𝗍}$  $\color{#cfbcb0}{ㅤㅤ𖹭ㅤㅤ}$  $\color{#944a15}{ᥱ𝗅𝗅𝗂𝗈𝗍}$ $\color{#cfbcb0}{۠ㅤㅤ‎᭪ㅤㅤ}$
 
@@ -48,7 +48,7 @@
 
 [prn.cc](https://pronouns.cc/@healrrkit)
 
- hi im medelliot or elliot :) im apagender and unlabeled. im a really big fan of phighting and a lvl 200+ medkit main, i am awkward and socially stunted ( or foggyminded ) , i really like phighting, psychology, summercamp island, lost temple, mcyt, unstable universe, lifesteal, typology, and birds.
+ hi im medelliot or elliot :) im apagender and unlabeled. im a really big fan of phighting and a lvl 200+ medkit main + pretty much almost a onetrick. i am awkward and socially stunted ( or foggyminded ) so please be patient with me. i really like phighting, psychology, summercamp island, lost temple, mcyt, unstable universe, lifesteal, typology, and birds.
  
  if u want to become friends feel free to ask, i will be happy to teach or talk to anyone about shared topics!!
 
@@ -69,7 +69,7 @@ i usually stick with friends or people i know a lot, i may appear a little intro
 
  ㅤ ㅤ ㅤㅤ   <img src="https://64.media.tumblr.com/24cdae1b5bfa0b528d285817c83ff673/2ba908b144f5d8a3-ca/s250x400/ad09664292a9948fd95a700e077a791933084f14.pnj" width="140">
 
-<img src="https://file.garden/ajK33fTlUG_SuFkN/Screenshot%202026-11-22%20080514.png" width="350">
+
 
    ㅤㅤㅤㅤㅤ </td>
     </tr>
