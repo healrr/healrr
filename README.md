@@ -37,7 +37,7 @@
 
  rob10xians: [reenzzsh](https://github.com/corruptedscall) [kiki.rhett](https://github.com/pwppy) [scarlet](https://github.com/scarletzgrimz) [clockwork.kaito](https://github.com/clockworkclover) [jay](https://github.com/deviousduoz) [elli](https://github.com/prizeflush) <- cutest couple -> [arle.chance](https://github.com/casino-flush) [null](https://github.com/202xyuri) [TheTrueEyecollective](https://github.com/TheTrueEyecollective)
 
- wifies, spokeishere.fei, f4wn, azure
+ wifies, spokeishere.fei, f4wn, azure, kas.parrot
     
   </details>
 
